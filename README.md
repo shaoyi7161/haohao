@@ -2,7 +2,7 @@
 xuexi
 aazaazaxza
 your hu houm
-tingy
+tingyiuyt
 tiantian
 dangran
 meiwentzhihuhug
